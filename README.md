@@ -10,4 +10,4 @@
 
 <p align="center">｡ ˚ ︶︶ꔫ︶︶‌ ₊ ˚ ︶︶ꔫ︶︶‌ ｡˚
   
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]label=cakes&color=b84027)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝐂𝐚𝐤𝐞𝐬&color=b84027)
