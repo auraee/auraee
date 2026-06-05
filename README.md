@@ -11,6 +11,12 @@
 <p align="center">｡ ˚ ︶︶ꔫ︶︶‌ ₊ ˚ ︶︶ꔫ︶︶‌ ｡˚
 
   
-<p align="center">ℬ𝑒𝑓𝑜𝑟𝑒 𝑦𝑜𝑢 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡
+<p align="center"><summary>ℬ𝑒𝑓𝑜𝑟𝑒 𝑦𝑜𝑢 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡</summary>
+<details>
+
+Wip... sorryyy....·°՞(¯□¯)՞°·.
+  
+</details>
+
   
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝐂𝐚𝐤𝐞𝐬‎୨୧&color=b84027)
