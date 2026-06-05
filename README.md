@@ -1,4 +1,4 @@
-𝐔𝐧𝐝𝐞𝐫 𝐜𝐨𝐧𝐬𝐭𝐫𝐮𝐜𝐭𝐢𝐨𝐧! 𝐂𝐨𝐦𝐞 𝐛𝐚𝐜𝐤 𝐥𝐚𝐭𝐞𝐫!
+𝐔𝐧𝐝𝐞𝐫 𝐜𝐨𝐧𝐬𝐭𝐫𝐮𝐜𝐭𝐢𝐨𝐧! 𝐂𝐨𝐦𝐞 𝐛𝐚𝐜𝐤 𝐥𝐚𝐭𝐞𝐫! 
 
 <p align="center">
 <img width="736" height="456" alt="Amo (Gachiakuta) crueldade Everin" src="https://github.com/user-attachments/assets/5dcfd798-fd66-4f81-bdbd-8db12895883c" />
@@ -9,3 +9,5 @@
 <p align="center"> &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;𝑨𝒏𝒅 𝒉𝒊𝒅𝒆 𝒉𝒆𝒓 𝒂𝒘𝒂𝒚 𝒇𝒓𝒐𝒎 𝒕𝒉𝒆 𝒓𝒆𝒔𝒕 𝒐𝒇 𝒕𝒉𝒆 𝒘𝒐𝒓𝒍𝒅
 
 <p align="center">｡ ˚ ︶︶ꔫ︶︶‌ ₊ ˚ ︶︶ꔫ︶︶‌ ｡˚
+  
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]label=cakes&color=b84027)
