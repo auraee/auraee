@@ -1,3 +1,5 @@
+im too lazy to remove backgrounds grr so js view it in light mode ok? ok 
+
 <p align="center"><img width="736" height="456" alt="Amo (Gachiakuta) crueldade Everin" src="https://github.com/user-attachments/assets/5dcfd798-fd66-4f81-bdbd-8db12895883c" />
 </p>
 <p align="center"><img width="736" height="50" alt="qy2vny" src="https://github.com/user-attachments/assets/f4e2f9ff-41a4-4df6-a139-cc9c7cf9cbf0" />
