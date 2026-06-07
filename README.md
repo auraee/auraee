@@ -1,11 +1,11 @@
 <p align="center"><img width="736" height="456" alt="Amo (Gachiakuta) crueldade Everin" src="https://github.com/user-attachments/assets/5dcfd798-fd66-4f81-bdbd-8db12895883c" />
 </p>
-<p align="center"><img width="736" height="50" alt="qy2vny" src="https://github.com/user-attachments/assets/f4e2f9ff-41a4-4df6-a139-cc9c7cf9cbf0" />
+<img width="736" height="50" alt="1000072042" src="https://github.com/user-attachments/assets/0c897aec-39ac-48ee-8471-efc7ed292500" />
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;𓈒ㅤׂ 𝜗𝜚&emsp;「 ‎ ‎❝𝑺𝒐𝒎𝒆 𝒃𝒐𝒚𝒔, 𝒕𝒂𝒌𝒆 𝒂 𝒃𝒆𝒂𝒖𝒕𝒊𝒇𝒖𝒍 𝒈𝒊𝒓𝒍 
 <p align="center"> &emsp;&emsp;&emsp;&emsp;𝑨𝒏𝒅 𝒉𝒊𝒅𝒆 𝒉𝒆𝒓 𝒂𝒘𝒂𝒚 𝒇𝒓𝒐𝒎 𝒕𝒉𝒆 𝒓𝒆𝒔𝒕 𝒐𝒇 𝒕𝒉𝒆 𝒘𝒐𝒓𝒍𝒅❞ ‎ ‎」.ִֶָ𓂃౨ৎ
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; <img width="100" height="100" alt="download (6)" src="https://github.com/user-attachments/assets/75a7d17e-6809-4d63-9ebc-b01806e5e45b" /> &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;𝓒𝑎𝑙𝑙 𝑚𝑒: *ʀɪɴɴɪᴇ, ʀɪɴ, ʀɪʀɪ!*
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; <img width="100" height="100" alt="1000072041" src="https://github.com/user-attachments/assets/82b39e30-31bb-4476-a56a-0cf919e70948" />&emsp;&emsp;&emsp;&emsp;𝓒𝑎𝑙𝑙 𝑚𝑒: *ʀɪɴɴɪᴇ, ʀɪɴ, ʀɪʀɪ!*
 <p align="center"> ᴍɪɴᴏʀ! ,, ꜰɪʟɪᴘɪɴᴏ ,, ᴛᴀɢ/ᴇɴɢ ,, ‎ᴀᴘʀɪʟ 10 ,, ᴀʀɪᴇꜱ
 
 <p align="center">︶︶｡ ˚ ︶︶ꔫ︶︶‌ ₊ ˚ ︶︶ꔫ︶︶‌ ｡˚︶︶
