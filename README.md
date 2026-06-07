@@ -1,12 +1,20 @@
+<div align="center">
+
 <p align="center"><img width="736" height="456" alt="Amo (Gachiakuta) crueldade Everin" src="https://github.com/user-attachments/assets/5dcfd798-fd66-4f81-bdbd-8db12895883c" />
 </p>
-<img width="736" height="50" alt="1000072042" src="https://github.com/user-attachments/assets/0c897aec-39ac-48ee-8471-efc7ed292500" />
+<p align="center"><img width="736" height="50" alt="1000072042" src="https://github.com/user-attachments/assets/0c897aec-39ac-48ee-8471-efc7ed292500" />
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;𓈒ㅤׂ 𝜗𝜚&emsp;「 ‎ ‎❝𝑺𝒐𝒎𝒆 𝒃𝒐𝒚𝒔, 𝒕𝒂𝒌𝒆 𝒂 𝒃𝒆𝒂𝒖𝒕𝒊𝒇𝒖𝒍 𝒈𝒊𝒓𝒍 
+𓈒ㅤׂ 𝜗𝜚&emsp;「 ‎ ‎❝𝑺𝒐𝒎𝒆 𝒃𝒐𝒚𝒔, 𝒕𝒂𝒌𝒆 𝒂 𝒃𝒆𝒂𝒖𝒕𝒊𝒇𝒖𝒍 𝒈𝒊𝒓𝒍 
 <p align="center"> &emsp;&emsp;&emsp;&emsp;𝑨𝒏𝒅 𝒉𝒊𝒅𝒆 𝒉𝒆𝒓 𝒂𝒘𝒂𝒚 𝒇𝒓𝒐𝒎 𝒕𝒉𝒆 𝒓𝒆𝒔𝒕 𝒐𝒇 𝒕𝒉𝒆 𝒘𝒐𝒓𝒍𝒅❞ ‎ ‎」.ִֶָ𓂃౨ৎ
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; <img width="100" height="100" alt="1000072041" src="https://github.com/user-attachments/assets/82b39e30-31bb-4476-a56a-0cf919e70948" />&emsp;&emsp;&emsp;&emsp;𝓒𝑎𝑙𝑙 𝑚𝑒: *ʀɪɴɴɪᴇ, ʀɪɴ, ʀɪʀɪ!*
-<p align="center"> ᴍɪɴᴏʀ! ,, ꜰɪʟɪᴘɪɴᴏ ,, ᴛᴀɢ/ᴇɴɢ ,, ‎ᴀᴘʀɪʟ 10 ,, ᴀʀɪᴇꜱ
+════════════════════════════════════\
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . \
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+
+𝓒𝑎𝑙𝑙 𝑚𝑒: *ʀɪɴɴɪᴇ, ʀɪɴ, ʀɪʀɪ!*
+<p align="center"> ᴍɪɴᴏʀ! ,, ꜰɪʟɪᴘɪɴᴏ ,, ᴀʟʟ ɴ ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ
+  
+ᴛᴀɢ/ᴇɴɢ ,, ‎ᴀᴘʀɪʟ 10 ,, ᴀʀɪᴇꜱ
 
 <p align="center">︶︶｡ ˚ ︶︶ꔫ︶︶‌ ₊ ˚ ︶︶ꔫ︶︶‌ ｡˚︶︶
 
@@ -81,6 +89,38 @@
 
 [꒰⊂ᥲbbrᥱvιᥲtιoᥒ mᥱᥲᥒιᥒgs꒱ ](https://ponytown.fandom.com/wiki/Name_Tag_Dictionary)\
 ᴊᴜꜱᴛ ꜰᴏʀ ᴀɴʏᴏɴᴇ ᴡʜᴏ ɪꜱ ᴄᴏɴꜰᴜꜱᴇᴅ ᴏɴ ᴡʜᴀᴛ ᴛʜᴇ ᴀʙʙʀᴇᴠɪᴀᴛɪᴏɴꜱ ᴍᴇᴀɴ! ^_^
+</details>
+
+<div align="center">
+<details>
+<summary><b>⊹ ࣪ ˖🍰₊˚⊹♡</b></summary>
+  <br>
+❦‎ ‎ ℳ𝓎 𝒽ℯ𝒶𝓇𝓉𝓈
+  
+‎ ‎ ‎ ‎ ‎ 𖹭 ʏᴏᴜ'ʟʟ ᴍᴏꜱᴛ ᴅᴇꜰɪɴɪᴛᴇʟʏ ꜱᴇᴇ ᴍᴇ ᴄᴜᴅᴅʟɪɴɢ ᴏʀ ɪɴ ᴀ ᴄᴜᴅᴅʟᴇ ᴘɪʟᴇ ᴡ/ ᴛʜᴇᴍ ᴜꜱᴜᴀʟʟʏ!
+
+≽(•⩊ •マ≼
+ɪʀʟꜱ ⋮ ᴋɪᴏ, ᴋʀɪʟʟ, ᴋᴀᴛᴇ, ʟᴛ, ᴀᴋɪ
+
+ᴄʟᴏꜱᴇ ꜰʀɪᴇɴᴅꜱ! 𖹭 ᴍᴡᴀ ! ⋮ ᴢʏ, ʟʏɴ
+
+ꜰʀɪᴇɴᴅꜱ! 𖹭 ᴍʏ ᴏᴏᴍꜰɪᴇꜱ ⋮ ᴊᴀᴅᴇ, ᴏʟɪ, ᴍᴀʀɪ, ʙʀᴇᴀᴅ, ᴠᴀʟ, ᴍɪᴍɪ, ᴋʏᴏ, ᴍᴀᴘʟᴇ, ᴋᴏʀɪ, ʀᴇɴ, ᴄᴇʟᴇꜱ, ʙᴀꜱɪʟ
+
+ᴛʜᴇʏ ᴅᴏɴ'ᴛ ᴘʟᴀʏ ᴘᴏɴʏ ᴛᴏᴡɴ ʙᴜᴛ ɪ ꜱᴛɪʟʟ ʟᴏᴠᴇ ᴛʜᴇᴍ ᴅᴇᴀʀʟʏ! ⋮ ᴋᴇɪ, ᴀꜱʜ, ʀɪᴀ
+
+</details>
+
+
 
   
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝐂𝐚𝐤𝐞𝐬‎୨୧&color=b84027)
+
+ᴍᴏʀᴇ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ
+
+[⌞StrawPage⌝ ₊ ⊹](https://everythingisblue.straw.page) ,, &emsp;&emsp;&emsp; 
+[ ⌞atabook⌝ ₊ ⊹](https://everythingisblue.atabook.org) ,, &emsp;&emsp;&emsp;
+[⌞Gimmicks Resp⌝ ₊ ⊹](https://ririandgimmicks.straw.page) ,, &emsp;&emsp;&emsp;
+[⌞Old SP⌝ ₊ ⊹](https://shiftrget2knowriri.straw.page) ,, &emsp;&emsp;&emsp;
+[⌞Pronouns.cc⌝ ₊ ⊹](https://pronouns.cc/@riririnnie) ,, &emsp;&emsp;&emsp;
+
+[⌞Pinterest⌝ ₊ ⊹](https://pin.it/1XNJ3v3Mg)
