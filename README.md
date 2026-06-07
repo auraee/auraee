@@ -120,7 +120,6 @@
 [⌞StrawPage⌝ ₊ ⊹](https://everythingisblue.straw.page) ,, &emsp;&emsp;&emsp; 
 [ ⌞atabook⌝ ₊ ⊹](https://everythingisblue.atabook.org) ,, &emsp;&emsp;&emsp;
 [⌞Gimmicks Resp⌝ ₊ ⊹](https://ririandgimmicks.straw.page) ,, &emsp;&emsp;&emsp;
-[⌞Old SP⌝ ₊ ⊹](https://shiftrget2knowriri.straw.page) ,, &emsp;&emsp;&emsp;
 [⌞Pronouns.cc⌝ ₊ ⊹](https://pronouns.cc/@riririnnie) ,, &emsp;&emsp;&emsp;
 
 [⌞Pinterest⌝ ₊ ⊹](https://pin.it/1XNJ3v3Mg)
