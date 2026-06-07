@@ -53,17 +53,15 @@
   <br>
 
   🍏 `` 𝒪𝑛𝑙𝑖𝑛𝑒\
-  I"m online, that's it. Interact freely and c+h is free 4 all, no need to ask! No need 2 say anything 2 me if ur gonna leave <33 If u wanna sit w me n js talk feel free 2 do so! Or if u js wanna cuddle w me but don't feel like talking I'm chill w that too!
+  ɪ"ᴍ ᴏɴʟɪɴᴇ, ᴛʜᴀᴛ'ꜱ ɪᴛ. ɪɴᴛᴇʀᴀᴄᴛ ꜰʀᴇᴇʟʏ ᴀɴᴅ ᴄ+ʜ ɪꜱ ꜰʀᴇᴇ 4 ᴀʟʟ, ɴᴏ ɴᴇᴇᴅ ᴛᴏ ᴀꜱᴋ! ɴᴏ ɴᴇᴇᴅ 2 ꜱᴀʏ ᴀɴʏᴛʜɪɴɢ 2 ᴍᴇ ɪꜰ ᴜʀ ɢᴏɴɴᴀ ʟᴇᴀᴠᴇ <33 ɪꜰ ᴜ ᴡᴀɴɴᴀ ꜱɪᴛ ᴡ ᴍᴇ ɴ ᴊꜱ ᴛᴀʟᴋ ꜰᴇᴇʟ ꜰʀᴇᴇ 2 ᴅᴏ ꜱᴏ! ᴏʀ ɪꜰ ᴜ ᴊꜱ ᴡᴀɴɴᴀ ᴄᴜᴅᴅʟᴇ ᴡ ᴍᴇ ʙᴜᴛ ᴅᴏɴ'ᴛ ꜰᴇᴇʟ ʟɪᴋᴇ ᴛᴀʟᴋɪɴɢ ɪ'ᴍ ᴄʜɪʟʟ ᴡ ᴛʜᴀᴛ ᴛᴏᴏ!
   
 
   🌙 `` 𝒜𝑤𝑎𝑦\
-  Semi AFK, AFK, or off tab, listening to music, or drawing. I'll definitely miss ur chat if it's in public chat so feel free to w2i 2 catch my attention!\
-  Tysmmm 4 the ppl that crowned me that I never replied to huhuhuuu so srry! I was prob afkkk T_T
+  ꜱᴇᴍɪ ᴀꜰᴋ, ᴀꜰᴋ, ᴏʀ ᴏꜰꜰ ᴛᴀʙ, ʟɪꜱᴛᴇɴɪɴɢ ᴛᴏ ᴍᴜꜱɪᴄ, ᴏʀ ᴅʀᴀᴡɪɴɢ. ɪ'ʟʟ ᴅᴇꜰɪɴɪᴛᴇʟʏ ᴍɪꜱꜱ ᴜʀ ᴄʜᴀᴛ ɪꜰ ɪᴛ'ꜱ ɪɴ ᴘᴜʙʟɪᴄ ᴄʜᴀᴛ ꜱᴏ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴡ2ɪ 2 ᴄᴀᴛᴄʜ ᴍʏ ᴀᴛᴛᴇɴᴛɪᴏɴ!\   ᴛʏꜱᴍᴍᴍ 4 ᴛʜᴇ ᴘᴘʟ ᴛʜᴀᴛ ᴄʀᴏᴡɴᴇᴅ ᴍᴇ ᴛʜᴀᴛ ɪ ɴᴇᴠᴇʀ ʀᴇᴘʟɪᴇᴅ ᴛᴏ ʜᴜʜᴜʜᴜᴜᴜ ꜱᴏ ꜱʀʀʏ! ɪ ᴡᴀꜱ ᴘʀᴏʙ ᴀꜰᴋᴋᴋ ᴛ_ᴛ
   
 
   ⛔ `` ℬ𝑢𝑠𝑦\
-  Either in a bad mood or preoccupied with smth! Most of the time it's the latter! Busy doing chores, homework, on call with friends, etc. Pls w2i bcs I will miss ur message otherwise. 
-  
+  ᴇɪᴛʜᴇʀ ɪɴ ᴀ ʙᴀᴅ ᴍᴏᴏᴅ ᴏʀ ᴘʀᴇᴏᴄᴄᴜᴘɪᴇᴅ ᴡɪᴛʜ ꜱᴍᴛʜ! ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ ɪᴛ'ꜱ ᴛʜᴇ ʟᴀᴛᴛᴇʀ! ʙᴜꜱʏ ᴅᴏɪɴɢ ᴄʜᴏʀᴇꜱ, ʜᴏᴍᴇᴡᴏʀᴋ, ᴏɴ ᴄᴀʟʟ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ, ᴇᴛᴄ. ᴘʟꜱ ᴡ2ɪ ʙᴄꜱ ɪ ᴡɪʟʟ ᴍɪꜱꜱ ᴜʀ ᴍᴇꜱꜱᴀɢᴇ ᴏᴛʜᴇʀᴡɪꜱᴇ.    
 
   </details>
   
