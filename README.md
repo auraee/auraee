@@ -117,9 +117,11 @@
 
 ᴍᴏʀᴇ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ
 
-[⌞StrawPage⌝ ₊ ⊹](https://everythingisblue.straw.page) ,, &emsp;&emsp;&emsp; 
-[ ⌞atabook⌝ ₊ ⊹](https://everythingisblue.atabook.org) ,, &emsp;&emsp;&emsp;
-[⌞Gimmicks Resp⌝ ₊ ⊹](https://ririandgimmicks.straw.page) ,, &emsp;&emsp;&emsp;
-[⌞Pronouns.cc⌝ ₊ ⊹](https://pronouns.cc/@riririnnie) ,, &emsp;&emsp;&emsp;
+   
 
-[⌞Pinterest⌝ ₊ ⊹](https://pin.it/1XNJ3v3Mg)
+
+[⌞𝕊𝕥𝕣𝕒𝕨ℙ𝕒𝕘𝕖⌝ ₊ ⊹](https://everythingisblue.straw.page) ,, &emsp;&emsp;&emsp; 
+[ ⌞𝔸𝕋𝔸⌝ ₊ ⊹](https://everythingisblue.atabook.org) ,, &emsp;&emsp;&emsp;
+[⌞ℙ𝕣𝕠𝕟𝕠𝕦𝕟𝕤⌝ ₊ ⊹](https://pronouns.cc/@riririnnie) ,, &emsp;&emsp;&emsp;
+
+[⌞ℙ𝕚𝕟𝕥𝕖𝕣𝕖𝕤𝕥⌝ ₊ ⊹](https://pin.it/1XNJ3v3Mg)
