@@ -52,6 +52,19 @@
 <summary><b>𝒮𝑡𝑎𝑡𝑢𝑠 𝑎𝑛𝑑 𝑠𝑡𝑢𝑓𝑓</b></summary>
   <br>
 
+  🍏 `` 𝒪𝑛𝑙𝑖𝑛𝑒\
+  I"m online, that's it. Interact freely and c+h is free 4 all, no need to ask! No need 2 say anything 2 me if ur gonna leave <33 If u wanna sit w me n js talk feel free 2 do so! Or if u js wanna cuddle w me but don't feel like talking I'm chill w that too!
+  
+
+  🌙 `` 𝒜𝑤𝑎𝑦\
+  Semi AFK, AFK, or off tab, listening to music, or drawing. I'll definitely miss ur chat if it's in public chat so feel free to w2i 2 catch my attention!\
+  Tysmmm 4 the ppl that crowned me that I never replied to huhuhuuu so srry! I was prob afkkk T_T
+  
+
+  ⛔ `` ℬ𝑢𝑠𝑦\
+  Either in a bad mood or preoccupied with smth! Most of the time it's the latter! Busy doing chores, homework, on call with friends, etc. Pls w2i bcs I will miss ur message otherwise. 
+  
+
   </details>
   
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝐂𝐚𝐤𝐞𝐬‎୨୧&color=b84027)
