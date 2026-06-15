@@ -133,8 +133,7 @@
 
 
 𐙚 𓏵𓏵𓏵𓏵𐙚
-  
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝐂𝐚𝐤𝐞𝐬‎୨୧&color=b84027)
+
 
 ᴍᴏʀᴇ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ
 
