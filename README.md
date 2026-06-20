@@ -9,7 +9,7 @@ llılıılıılıılıılıılıılıılıılıılı
 </p>
 <p align="center"><img width="736" height="50" alt="1000072042" src="https://github.com/user-attachments/assets/0c897aec-39ac-48ee-8471-efc7ed292500" />
 
-<sub>𝒯ℴℊℯ𝓉𝒽ℯ𝓇 𝓌ℯ 𝒸𝒽𝒶𝓃ℊℯ 𝓉𝒽ℯ 𝒽𝒾𝓈𝓉ℴ𝓇𝓎 ...</sub>
+<small>𝒯ℴℊℯ𝓉𝒽ℯ𝓇 𝓌ℯ 𝒸𝒽𝒶𝓃ℊℯ 𝓉𝒽ℯ 𝒽𝒾𝓈𝓉ℴ𝓇𝓎 ...</small>
 
 𓈒ㅤׂ 𝜗𝜚&emsp;「 ‎ ‎❝𝓑𝑎𝑑 𝑔𝑖𝑟𝑙, 𝑏𝑎𝑑 𝑔𝑖𝑟𝑙\
 𝓦ℎ𝑎𝑡 𝑦𝑜𝑢 𝑔𝑜𝑛𝑛𝑎 𝑑𝑜 𝑛𝑜𝑤? 
