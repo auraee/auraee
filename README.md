@@ -1,15 +1,23 @@
 <div align="center">
 
-<p align="center"><img width="736" height="456" alt="Amo (Gachiakuta) crueldade Everin" src="https://github.com/user-attachments/assets/5dcfd798-fd66-4f81-bdbd-8db12895883c" />
+<sub>𝔹𝕒𝕕 𝔾𝕚𝕣𝕝 - 𝔸𝕟𝕕 𝕆𝕟𝕖</sub>
+
+‎↻ ◁ || ▷ ↺\
+llılıılıılıılıılıılıılıılıılıılı
+
+<p align="center"><img width="736" height="331" alt="1000072150" src="https://github.com/user-attachments/assets/13632c6f-96a6-475d-a706-b8a68f2df699" />
 </p>
 <p align="center"><img width="736" height="50" alt="1000072042" src="https://github.com/user-attachments/assets/0c897aec-39ac-48ee-8471-efc7ed292500" />
 
-𓈒ㅤׂ 𝜗𝜚&emsp;「 ‎ ‎❝𝑺𝒐𝒎𝒆 𝒃𝒐𝒚𝒔, 𝒕𝒂𝒌𝒆 𝒂 𝒃𝒆𝒂𝒖𝒕𝒊𝒇𝒖𝒍 𝒈𝒊𝒓𝒍 
-<p align="center"> &emsp;&emsp;&emsp;&emsp;𝑨𝒏𝒅 𝒉𝒊𝒅𝒆 𝒉𝒆𝒓 𝒂𝒘𝒂𝒚 𝒇𝒓𝒐𝒎 𝒕𝒉𝒆 𝒓𝒆𝒔𝒕 𝒐𝒇 𝒕𝒉𝒆 𝒘𝒐𝒓𝒍𝒅❞ ‎ ‎」.ִֶָ𓂃౨ৎ
+<sub>𝒯ℴℊℯ𝓉𝒽ℯ𝓇 𝓌ℯ 𝒸𝒽𝒶𝓃ℊℯ 𝓉𝒽ℯ 𝒽𝒾𝓈𝓉ℴ𝓇𝓎 ...</sub>
 
-════════════════════════════════════\
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . \
-︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+𓈒ㅤׂ 𝜗𝜚&emsp;「 ‎ ‎❝𝓑𝑎𝑑 𝑔𝑖𝑟𝑙, 𝑏𝑎𝑑 𝑔𝑖𝑟𝑙\
+𝓦ℎ𝑎𝑡 𝑦𝑜𝑢 𝑔𝑜𝑛𝑛𝑎 𝑑𝑜 𝑛𝑜𝑤? 
+<p align="center"> &emsp;&emsp;&emsp;&emsp;'𝓒𝑎𝑢𝑠𝑒 𝑒𝑣𝑒𝑟𝑦𝑏𝑜𝑑𝑦 𝑠𝑒𝑒 𝑤ℎ𝑎𝑡 𝑦𝑜𝑢 ℎ𝑖𝑑𝑒❞ ‎ ‎」.ִֶָ𓂃౨ৎ
+
+══════════════════\
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .  \
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
 
 𝓒𝑎𝑙𝑙 𝑚𝑒: *ʀɪɴɴɪᴇ, ʀɪɴ, ʀɪʀɪ!*
 <p align="center"> ꜰɪʟ. ,, ᴀʟʟ ɴ ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ
@@ -114,7 +122,7 @@
 
 <div align="center">
 <details>
-<summary><b>⊹ ࣪ ˖🍰₊˚⊹♡</b></summary>
+<summary><b>˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚</b></summary>
   <br>
   ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
   
@@ -137,9 +145,9 @@
 </details>
 
 
-𐙚 𓏵𓏵𓏵𓏵𐙚
+𐙚𓏵𓏵𓏵𓏵𐙚
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝐂𝐚𝐤𝐞𝐬‎୨୧&color=b84027)
+  ‧₊˚ ⋅   ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=ᴀɴɢᴇʟꜱ&color=grey)‎ ‎ 𓏲🪽˚. ˖ . ݁ 
 
 ᴍᴏʀᴇ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ
 
