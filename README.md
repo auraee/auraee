@@ -5,7 +5,7 @@
 ‎↻ ◁ || ▷ ↺\
 llılıılıılıılıılıılıılıılıılıılı
 
-<p align="center"><img width="736" height="331" alt="1000072150" src="https://github.com/user-attachments/assets/13632c6f-96a6-475d-a706-b8a68f2df699" />
+<p align="center"><img width="736" height="331" alt="1000072152" src="https://github.com/user-attachments/assets/ac2af4c6-0c30-407f-adf1-bc3cdc69f5cd" />
 </p>
 <p align="center"><img width="736" height="50" alt="1000072042" src="https://github.com/user-attachments/assets/0c897aec-39ac-48ee-8471-efc7ed292500" />
 
@@ -147,7 +147,7 @@ llılıılıılıılıılıılıılıılıılıılı
 
 𐙚𓏵𓏵𓏵𓏵𐙚
 
-  ‧₊˚ ⋅   ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=ᴀɴɢᴇʟꜱ&color=grey)‎ ‎ 𓏲🪽˚. ˖ . ݁ 
+  ‧₊˚ ⋅   ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=ᴀɴɢᴇʟꜱ&color=D99B74)‎ ‎ 𓏲🪽˚. ˖ . ݁ 
 
 ᴍᴏʀᴇ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ
 
