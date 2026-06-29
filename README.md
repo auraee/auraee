@@ -156,5 +156,5 @@ llılıılıılıılıılıılıılıılıılıılı
    
 
 
-[⌞𝕊𝕥𝕣𝕒𝕨ℙ𝕒𝕘𝕖⌝ ₊ ⊹](https://yourauraee.straw.page) ‎ ‎ ‎ ⊹ ‎ ‎ [ ⌞𝔸𝕋𝔸𝕓𝕠𝕠𝕜⌝ ₊ ⊹](https://gate2caelum.atabook.org.org)‎ ‎ ‎ ‎ ⊹ ‎ ‎ 
+[⌞𝕊𝕥𝕣𝕒𝕨ℙ𝕒𝕘𝕖⌝ ₊ ⊹](https://yourauraee.straw.page) ‎ ‎ ‎ ⊹ ‎ ‎ [ ⌞𝔸𝕋𝔸𝕓𝕠𝕠𝕜⌝ ₊ ⊹](https://gate2caelum.atabook.org/)‎ ‎ ‎ ‎ ⊹ ‎ ‎ 
 [⌞ℙ𝕣𝕠𝕟𝕠𝕦𝕟𝕤⌝ ₊ ⊹](https://pronouns.cc/@riririnnie) ‎ ‎ ‎ ⊹ ‎ ‎ [⌞ℙ𝕚𝕟𝕥𝕖𝕣𝕖𝕤𝕥⌝ ₊ ⊹](https://pin.it/1XNJ3v3Mg)‎ ‎ ‎ ⊹ ‎ ‎ 
