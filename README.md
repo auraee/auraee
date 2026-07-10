@@ -1,4 +1,6 @@
-<img width="735" height="245" alt="1000072518" src="https://github.com/user-attachments/assets/d46e01be-54da-4bc2-b921-aa4e456ed03b" />
+𝒯*ℎ𝑎𝑡'𝑠 ℎ𝑢𝑚𝑎𝑛 𝑛𝑎𝑡𝑢𝑟𝑒* 
+
+<img width="736" height="414" alt="1000072519" src="https://github.com/user-attachments/assets/bfbd1477-5c41-4514-89fe-03371fc08c96" />
 
 
 ˗ˏˋ ♡ ˎˊ˗꒱ [【prns.cc】](https://pronouns.cc/@aurae)  𓏵 [【strawpg】](https://yourauraee.straw.page) 𓏵\
