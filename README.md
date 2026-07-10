@@ -5,5 +5,3 @@
 
   ˗ˏˋ ♡ ˎˊ˗꒱ [【prns.cc】](https://pronouns.cc/@aurae)  𓏵 [【strawpg】](https://yourauraee.straw.page) 𓏵\
 [【ata】](https://gate2caelum.atabook.org/) 𓏵 [【gimmicks】](https://ririandgimmicks.straw.page)
-
-<div align="center"><img width="200" height="200" alt="1000072526" src="https://github.com/user-attachments/assets/19275bcd-653c-4fb4-95e1-9c96466df596" />
