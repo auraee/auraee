@@ -2,7 +2,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ℐ*𝑡'𝑠 ℎ𝑢𝑚𝑎𝑛 𝑛𝑎𝑡𝑢𝑟𝑒* 
 
 <div align="center">
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <img width="736" height="414" alt="1000072524" src="https://github.com/user-attachments/assets/d4eead4b-127c-4baa-8bdd-3c51584080d4" />
    
