@@ -13,5 +13,11 @@
 
 [【新book】](https://gate2caelum.atabook.org/) 𓏵 [【gimmicks】](https://ririandgimmicks.straw.page)
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=grey)‎ 
+❀° ┄────────────────────────╮\
+   **c + h freely** . DNC unless for cuds\
+   do not copy . **dni rp** . dni ships\
+   **always iwc** . public chat usually off\
+   unless I'm w/ a friend so **w2i**\
+╰────────────────────────┄ °❀
 
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=grey)‎ 
