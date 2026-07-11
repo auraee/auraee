@@ -11,7 +11,7 @@
    
 ˗ˏˋ ♡ ˎˊ˗꒱ [【prns.cc】](https://pronouns.cc/@aurae)  𓏵 [【strawpg】](https://yourauraee.straw.page) 
 
-[【新book】](https://gate2caelum.atabook.org/) 𓏵 [【lovemail!】]()
+[【新book】](https://gate2caelum.atabook.org/) 𓏵 [【lovemail!】](https://rentry.co/cordamea)
 
 ❀° ┄────────────────────╮\
    **c + h freely** . DNC unless for cuds\
