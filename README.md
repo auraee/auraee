@@ -13,7 +13,7 @@
 
 [【新book】](https://gate2caelum.atabook.org/) 𓏵 [【rentry】](https://rentry.co/auraee)
 
-❀° ┄────────────────╮\
+❀° ┄───────────────────╮\
    **c + h freely** . DNC unless for cuds\
    do not copy . **dni rp** . dni ships\
    **always iwc** . public chat usually off\
