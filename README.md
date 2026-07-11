@@ -5,6 +5,8 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <img width="736" height="414" alt="1000072524" src="https://github.com/user-attachments/assets/d4eead4b-127c-4baa-8bdd-3c51584080d4" />
+<img width="736" height="73=" alt="wikcwm" src="https://github.com/user-attachments/assets/b63ca4ca-2874-4582-a5ab-6e333c2c4bdb" />
+
    
 ˗ˏˋ ♡ ˎˊ˗꒱ [【prns.cc】](https://pronouns.cc/@aurae)  𓏵 [【strawpg】](https://yourauraee.straw.page) 
 
