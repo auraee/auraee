@@ -13,11 +13,11 @@
 
 [【新book】](https://gate2caelum.atabook.org/) 𓏵 [【rentry】](https://rentry.co/auraee)
 
-❀° ┄───────────────────╮\
+──── ୨୧ ────\
    **c + h freely** . DNC unless for cuds\
    do not copy . **dni rp** . dni ships\
    **always iwc** . public chat usually off\
    unless I'm w/ a friend so **w2i**\
-╰──────────────┄ °❀
+──── ୨୧ ────
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=grey)‎ 
+˚₊‧꒰ა ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=grey)‎  ໒꒱ ‧₊˚
