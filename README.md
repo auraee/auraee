@@ -13,10 +13,17 @@
 
 [【新book】](https://gate2caelum.atabook.org/) 𓏵 [【rentry】](https://rentry.co/auraee)
 
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟୨୧𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31m3xmkmaxdm6rbaosnwdxmrv47u&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=e8d0c1&bar_color_cover=false">
   </a>
 </p>
+
+01:43 ━━━━●───── 03:50\
+⇆ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿\
+ılıılıılıılıılıılı\
+ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮
 
 ˚₊‧꒰ა ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=grey)‎  ໒꒱ ‧₊˚
