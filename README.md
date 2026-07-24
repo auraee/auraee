@@ -25,7 +25,7 @@
 ⇆ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿
 
    
-❦ ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=D5CEBD)
+ ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=D5CEBD)
  
  </div>‎
  
