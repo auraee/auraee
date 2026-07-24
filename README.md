@@ -13,7 +13,7 @@
 
 [【新book】](https://gate2caelum.atabook.org/) 𓏵 [【rentry】](https://rentry.co/auraee)
 
-$${\color{#BEB49E}𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟୨୧𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡}$$
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟୨୧𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
