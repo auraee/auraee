@@ -13,7 +13,7 @@
 
 [【新book】](https://gate2caelum.atabook.org/) 𓏵 [【rentry】](https://rentry.co/auraee)
 
-𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟୨୧𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
+$${\color{#BEB49E}𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟୨୧𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡}$$
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -22,8 +22,10 @@
 </p>
 
 01:43 ━━━━●───── 03:50\
-⇆ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿\
-ılıılıılıılıılıılı\
-ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮
+⇆ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿
 
-˚₊‧꒰ა ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=grey)‎  ໒꒱ ‧₊˚
+   
+❦ ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=୨୧&color=D5CEBD)
+ 
+ </div>‎
+ 
