@@ -1,7 +1,8 @@
-𝒜*𝑛𝑑 𝐼 '𝑚 𝑛𝑜𝑡 𝑠𝑜𝑟𝑟𝑦*‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ 𓏵‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ℐ'*𝑚 𝑛𝑜𝑡 𝑠𝑜𝑟𝑟𝑦* 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ℐ*𝑡 '𝑠 ℎ𝑢𝑚𝑎𝑛 𝑛𝑎𝑡𝑢𝑟𝑒* 
-
 <div align="center">
+   
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Source+Serif+4&weight=200&size=18&letterSpacing=2&duration=2011&pause=400&color=C0A661&background=FCDDFF00&center=true&vCenter=true&multiline=true&width=385&height=93&lines=%22And+I'm+not+sorry%2C+;I'm+not+sorry.;It's+human+nature...%22)](https://git.io/typing-svg)
+
+
    
 [![620324885-353f3659-40e8-43d4-acc0-ad4360a68159.png](https://i.postimg.cc/KY70Qnrs/620324885-353f3659-40e8-43d4-acc0-ad4360a68159.png)](https://postimg.cc/sBXPgGLp)
 
