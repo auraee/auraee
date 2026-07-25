@@ -1,6 +1,6 @@
 <div align="center">
    
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Source+Serif+4&weight=200&size=18&letterSpacing=2&duration=2011&pause=400&color=C0A661&background=FCDDFF00&center=true&vCenter=true&multiline=true&width=385&height=93&lines=%22And+I'm+not+sorry%2C+;I'm+not+sorry.;It's+human+nature...%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Source+Serif+4&weight=200&size=14&letterSpacing=2&duration=2011&pause=400&color=C0A661&background=FCDDFF00&center=true&vCenter=true&multiline=true&width=385&height=93&lines=%22People+have+misunderstood+me+all+my+life.;But+the+person+I+am+now+harbors+no+anger+or+resentment.+;+I+have+something+stronger+than+those+emotions...)](https://git.io/typing-svg)
 
 
    
