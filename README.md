@@ -52,7 +52,8 @@
 
 ── .✦ [【prns.cc】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【strawpg】](https://yourauraee.straw.page) 
 
- [【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea) 
+ [【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea)  <img src="https://i.postimg.cc/VvMm9cVp/c9c26217-ad78-41a1-b9de-1d5e8bc124ab-removalai-preview.png" alt="Description" width="80">
+
 
 &emsp;
 
