@@ -19,10 +19,10 @@
 
 
 ‎<div align="center">
-‎ 𝒾𝓃𝒻ℴ   ৴  𝓅𝓉
+‎⌗&emsp;𝒾𝓃𝒻ℴ   ৴  𝓅𝓉 
   <div align="center">
 <details>
-<summary><b> (:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅ )</b></summary>
+<summary><b> ૮₍ ˃ ⤙ ˂ ₎ა </b></summary>
   <br>
 
 𝙳𝙽𝙲\
@@ -50,14 +50,16 @@
 </details>‎  
 
 
-˗ˏˋ ♡ ˎˊ˗꒱ [【𝑝̲𝑟̲𝑛̲𝑠̲.𝑐̲𝑐̲】](https://pronouns.cc/@aurae)  𓏵 [【𝑠̲𝑡̲𝑟̲𝑎̲𝑤̲】](https://yourauraee.straw.page) 
+˗ˏˋ ♡ ˎˊ˗꒱ [【𝑝̲𝑟̲𝑛̲𝑠̲.𝑐̲𝑐̲】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【𝑠̲𝑡̲𝑟̲𝑎̲𝑤̲𝑝̲𝑔̲】](https://yourauraee.straw.page) 
 
-[【新𝑏̲𝑜̲𝑜̲𝑘̲】](https://gate2caelum.atabook.org/) 𓏵 [【·‌·♡ 𝑚̲𝑎̲𝑖̲𝑙̲ 】](https://rentry.co/cordamea) 
+&emsp;&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;[【新𝑏̲𝑜̲𝑜̲𝑘̲】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ 𝑚̲𝑎̲𝑖̲𝑙̲ 】](https://rentry.co/cordamea) 
 
 &emsp;
 
- ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=˚₊‧꒰ა𓂋໒꒱₊˚&color=D5CEBD)
-
 </div>
+
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝚕𝚘𝚟𝚎&color=d2772f)
+
+
 
 
