@@ -20,7 +20,7 @@
 
 
 ‎<div align="center">
-‎꒰𐔌&emsp;𝒾𝓃𝒻ℴ   ৴  𝓅𝓉 \
+‎꒰𐔌 𝒾𝓃𝒻ℴ   ৴  𝓅𝓉 \
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔
   <div align="center">
 <details>
