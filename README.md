@@ -9,7 +9,7 @@
 
  <img src="https://i.postimg.cc/nhmnHXNt/download-(7).jpg" alt="Description" width="190" align="left">
 
-𝚁𝚒𝚗𝚗𝑖̲𝑒̲   ╰  &emsp;  𝙰𝚞𝚛𝑎̲𝑒̲\
+<h3>𝚁𝚒𝚗𝚗𝑖̲𝑒̲   ╰  &emsp;  𝙰𝚞𝚛𝑎̲𝑒̲</h3>
 𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠
 
 𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠&emsp; 𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐\
