@@ -7,14 +7,14 @@
 [![7f324f6f-b867-437b-88c8-f9924f22229b-removalai-preview.png](https://i.postimg.cc/bwmjT17V/7f324f6f-b867-437b-88c8-f9924f22229b-removalai-preview.png)](https://postimg.cc/nX95V9cq)
 </div>
 
- <img src="https://i.postimg.cc/nhmnHXNt/download-(7).jpg" alt="Description" width="190" align="left">
+ <img src="https://i.postimg.cc/nhmnHXNt/download-(7).jpg" alt="Description" width="130" align="left">
 
-<h3>𝚁𝚒𝚗𝚗𝑖̲𝑒̲   ╰  &emsp;  𝙰𝚞𝚛𝑎̲𝑒̲</h3>
+<h3> 𝚁𝚒𝚗𝚗𝚒𝚎 𔓕 &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 &emsp;  </h3>
 𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠
 
 𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠&emsp; 𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐\
 &emsp;&emsp;04.10&emsp;&emsp;&emsp;&emsp; 𝑖𝑛𝑓𝑝-𝑡\
-𓂃&emsp;&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp;&emsp; 𝑖𝑙𝑚𝑏𝑓\
+𓂃&emsp;&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓\
 𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛
 
 
@@ -50,9 +50,9 @@
 </details>‎  
 
 
-˗ˏˋ ♡ ˎˊ˗꒱ [【𝑝̲𝑟̲𝑛̲𝑠̲.𝑐̲𝑐̲】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【𝑠̲𝑡̲𝑟̲𝑎̲𝑤̲𝑝̲𝑔̲】](https://yourauraee.straw.page) 
+˗ˏˋ ♡ ˎˊ˗꒱ [【prns.cc】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【strawpg】](https://yourauraee.straw.page) 
 
-&emsp;&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;[【新𝑏̲𝑜̲𝑜̲𝑘̲】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ 𝑚̲𝑎̲𝑖̲𝑙̲ 】](https://rentry.co/cordamea) 
+&emsp;&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;[【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea) 
 
 &emsp;
 
