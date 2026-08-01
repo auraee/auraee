@@ -9,7 +9,8 @@
 
  <img src="https://i.postimg.cc/nhmnHXNt/download-(7).jpg" alt="Description" width="130" align="left">
 
-<h3> 𝚁𝚒𝚗𝚗𝚒𝚎 𔓕 &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 &emsp;  </h3>
+⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝ &emsp;
+
 𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠
 
 𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠&emsp; 𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐\
@@ -19,17 +20,16 @@
 
 
 ‎<div align="center">
-‎⌗&emsp;𝒾𝓃𝒻ℴ   ৴  𝓅𝓉 
+‎꒰𐔌&emsp;𝒾𝓃𝒻ℴ   ৴  𝓅𝓉 \
+⏔⏔⏔⏔⏔⏔⏔⏔⏔
   <div align="center">
 <details>
-<summary><b> ૮₍ ˃ ⤙ ˂ ₎ა </b></summary>
+<summary><b> ໒꒰ྀིっ˕ -｡꒱ྀི১</b></summary>
   <br>
 
 𝙳𝙽𝙲\
 ɴᴏ ᴄᴏᴘʏɪɴɢ ᴍʏ ᴘᴏɴɪᴇꜱ ᴘʟꜱ! ɪ'ᴍ ᴏᴋᴀʏ ᴡ/ ʟɪɢʜᴛ ɪɴꜱᴘᴏ. ᴅᴏɴ'ᴛ ᴀꜱᴋ ᴍᴇ ꜰᴏʀ ʜᴇx ᴄᴏᴅᴇꜱ,\
 ɪ ʟɪᴋᴇʟʏ ᴡᴏɴ'ᴛ ɢɪᴠᴇ ᴛʜᴇᴍ ꜱʀʀʏ (ᴜɴʟᴇꜱꜱ ɪᴛ'ꜱ ꜰᴏʀ ᴛʜɪɴɢꜱ ꜱᴜᴄʜ ᴀꜱ ᴛʜᴇ ʜᴇx ᴄᴏᴅᴇ ꜰᴏʀ ɢʀᴀꜱꜱ, ᴡᴀᴛᴇʀ, ʙʀɪᴄᴋꜱ, ᴇᴛᴄ.)
-
-ᴀʟʟ ᴍʏ ᴄᴏʟᴏʀ ᴘᴀʟʟᴇᴛᴛᴇꜱ ᴀɴᴅ ᴅᴇꜱɪɢɴꜱ ᴀʀᴇ ᴏʀɪɢɪɴᴀʟ! ᴀɴᴅ ɴᴏ, ɪ ᴅᴏɴ'ᴛ ᴛɪɴᴛ ᴛꜱ ᴛᴏᴏ ᴛᴇᴅɪᴏᴜꜱ ꜰᴏʀ ᴍᴇ (¬`‸´¬)
 
 𝙳𝙾𝙽'𝚃 𝙲𝙾𝚅𝙴𝚁\
 ᴜɴʟᴇꜱꜱ ꜰᴏʀ ᴄᴜᴅꜱ ɪ ᴅᴏɴ'ᴛ ᴍɪɴᴅ! ɪ ᴜꜱᴜᴀʟʟʏ ᴊꜱ ʜɪᴅᴇ ᴘᴘʟ ᴘᴜʀᴘᴏꜱᴇꜰᴜʟʟʏ ᴄᴏᴠᴇʀɪɴɢ ᴍᴇ.
@@ -50,7 +50,7 @@
 </details>‎  
 
 
-˗ˏˋ ♡ ˎˊ˗꒱ [【prns.cc】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【strawpg】](https://yourauraee.straw.page) 
+── .✦ [【prns.cc】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【strawpg】](https://yourauraee.straw.page) 
 
 &emsp;&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;[【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea) 
 
