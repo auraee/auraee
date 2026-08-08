@@ -7,7 +7,7 @@
 [![7f324f6f-b867-437b-88c8-f9924f22229b-removalai-preview.png](https://i.postimg.cc/bwmjT17V/7f324f6f-b867-437b-88c8-f9924f22229b-removalai-preview.png)](https://postimg.cc/nX95V9cq)
 </div>
 
- <img src="https://i.postimg.cc/nhmnHXNt/download-(7).jpg" alt="Description" width="130" align="left">
+ <img width="130" alt="40714d64-414b-4b6a-981a-4250cf4022e9_removalai_preview" src="https://github.com/user-attachments/assets/a393ed4b-735d-4d57-89ee-aa7c99023cbe" align="left">
 
 ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝ &emsp;
 
