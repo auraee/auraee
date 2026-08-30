@@ -1,13 +1,13 @@
 <div align="center">
-<sub>``𝙿𝚞𝚠𝚎𝚍𝚎 𝚋𝚊 '𝚔𝚘𝚗𝚐 𝚖𝚊𝚗𝚊𝚝𝚒𝚕𝚒?`` &emsp;&emsp; ``𝙸𝚔𝚊𝚠 𝚕𝚊𝚗𝚐 𝚊𝚗𝚐 𝚐𝚞𝚜𝚝𝚘𝚗𝚐 𝚙𝚊𝚐𝚖𝚊𝚜𝚍𝚊𝚗``</sub>
+<sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑`` &emsp;&emsp; ``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
 
    &emsp;
    
-![Typing SVG](https://i.pinimg.com/736x/4c/21/1e/4c211ea0e2094df463b76c97c5388592.jpg)   
-[![7f324f6f-b867-437b-88c8-f9924f22229b-removalai-preview.png](https://i.postimg.cc/bwmjT17V/7f324f6f-b867-437b-88c8-f9924f22229b-removalai-preview.png)](https://postimg.cc/nX95V9cq)
+[![Untitled82-20260830132635.png](https://i.postimg.cc/NFH4FjLz/Untitled82-20260830132635.png)](https://postimg.cc/bSqbF8xx)
+
 </div>
 
- <img width="130" alt="40714d64-414b-4b6a-981a-4250cf4022e9_removalai_preview" src="https://github.com/user-attachments/assets/a393ed4b-735d-4d57-89ee-aa7c99023cbe" align="left">
+
 
 ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝ &emsp;
 
@@ -52,7 +52,11 @@
 
 ── .✦ [【prns.cc】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【strawpg】](https://yourauraee.straw.page) 
 
- [【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea)  <img src="https://i.postimg.cc/VvMm9cVp/c9c26217-ad78-41a1-b9de-1d5e8bc124ab-removalai-preview.png" alt="Description" width="80">
+ [【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea) 
+<a href="https://postimg.cc/yW5sPn7J">
+  <img src="https://i.postimg.cc/7YPhqQcN/08232c0f-21fa-4932-b12f-2344949d518c-removalai-preview.png" width="30" alt="Preview Image" />
+</a>
+<div align="left">
 
 
 &emsp;
