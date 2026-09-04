@@ -67,7 +67,7 @@
 
 </div>
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝚕𝚘𝚟𝚎&color=d5cdf0)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝓬𝓪𝓻𝓭𝓼&color=d5cdf0)
 
 
 
