@@ -1,15 +1,19 @@
 <div align="center">
 <sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑`` &emsp;&emsp; ``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
 
-   &emsp;
+&emsp;
    
 [![Untitled82-20260830132635.png](https://i.postimg.cc/NFH4FjLz/Untitled82-20260830132635.png)](https://postimg.cc/bSqbF8xx)
+ <picture> <img width="600" height="38" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
+ </a>
+
 
 </div>
 
 
+ 
+<div align="right"> ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝ &emsp; 
 
-⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝ &emsp;
 
 𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠
 
@@ -20,11 +24,11 @@
 
 
 ‎<div align="center">
-‎꒰𐔌 𝒾𝓃𝒻ℴ   ৴  𝓅𝓉 \
-⏔⏔⏔⏔⏔⏔⏔⏔⏔
+‎꒰𐔌 𝒾𝓃𝒻ℴ ♡⸝⸝
+
   <div align="center">
 <details>
-<summary><b> ໒꒰ྀིっ˕ -｡꒱ྀི১</b></summary>
+<summary><b><img width="60" height="16" alt="gvgz58" src="https://github.com/user-attachments/assets/e93f17c1-62c4-44d5-ad54-96e471e5bf1e" /></b></summary>
   <br>
 
 𝙳𝙽𝙲\
@@ -54,7 +58,7 @@
 
  [【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea) 
 <a href="https://postimg.cc/yW5sPn7J">
-  <img src="https://i.postimg.cc/7YPhqQcN/08232c0f-21fa-4932-b12f-2344949d518c-removalai-preview.png" width="30" alt="Preview Image" />
+<img width="61" height="18" alt="euw6hg" src="https://github.com/user-attachments/assets/852ec87d-7332-4e32-b5f6-51baf1a76063" />
 </a>
 <div align="left">
 
@@ -63,7 +67,7 @@
 
 </div>
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝚕𝚘𝚟𝚎&color=d2772f)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𝚕𝚘𝚟𝚎&color=d5cdf0)
 
 
 
