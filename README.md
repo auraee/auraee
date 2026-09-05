@@ -12,15 +12,13 @@
 
 
  
-<div align="center"> ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝ &emsp; 
-
-
-𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠
-
-𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠&emsp; 𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐\
-&emsp;&emsp;04.10&emsp;&emsp;&emsp;&emsp; 𝑖𝑛𝑓𝑝-𝑡\
-𓂃&emsp;9𝑤1&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓\
-𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛
+<div align="center"> ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝
+   
+<sub>𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠</sub>\
+<sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠&emsp; 𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>\
+<sub>&emsp;&emsp;04.10&emsp;&emsp;&emsp;&emsp; 𝑖𝑛𝑓𝑝-𝑡</sub>\
+<sub>𓂃&emsp;9𝑤1&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓</sub>\
+<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛</sub>
 
 
 ‎<div align="center">
