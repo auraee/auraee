@@ -12,7 +12,8 @@
 
 
  
-<div align="center"> ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝
+<div align="center"> <img width="20" height="20" alt="tumblr_c0553388387bf9c61ce4ab304123efb9_743a5b24_75" src="https://github.com/user-attachments/assets/a1303efe-d4c2-47ec-8f9d-be8c65b54567" />
+⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝
    
 <sub>𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠</sub>\
 <sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠&emsp; 𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>\
