@@ -12,7 +12,6 @@
 <picture><img width="600" height="38" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
     </td>
     <td>
-      <h3> ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝</h3>
 <p>
 <sub>𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠</sub>&emsp;     
 <sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠 &emsp; &emsp;&emsp;  𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>&emsp; 
