@@ -1,33 +1,35 @@
 <div align="center">
-<sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑`` &emsp;&emsp; ``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
 
 &emsp;
-   
-[![Untitled82-20260830132635.png](https://i.postimg.cc/NFH4FjLz/Untitled82-20260830132635.png)](https://postimg.cc/bSqbF8xx)
- <picture> <img width="600" height="38" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
- </a>
 
+<table>
+  <tr>
+    <td>
+<div align="center"> <sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑``&emsp;``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
 
-</div>
-
-
- 
-<div align="center"> <img width="20" height="20" alt="tumblr_c0553388387bf9c61ce4ab304123efb9_743a5b24_75" src="https://github.com/user-attachments/assets/a1303efe-d4c2-47ec-8f9d-be8c65b54567" />
-⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝
-   
-<sub>𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠</sub>\
-<sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠&emsp; 𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>\
-<sub>&emsp;&emsp;04.10&emsp;&emsp;&emsp;&emsp; 𝑖𝑛𝑓𝑝-𝑡</sub>\
-<sub>𓂃&emsp;9𝑤1&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓</sub>\
-<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛</sub>
+<picture><img width="500" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
+</picture>
+<picture><img width="600" height="38" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
+    </td>
+    <td>
+      <h3> ⌞ 𝚁𝚒𝚗𝚗𝚒𝚎 ノ &emsp;𝙰𝚞𝚛𝚊𝚎𝚎 ⌝</h3>
+<p>
+<sub>𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠</sub>&emsp;     
+<sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠 &emsp; &emsp;&emsp;  𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>&emsp; 
+<sub>&emsp;&emsp;04.10&emsp;&emsp;&emsp;&emsp; 𝑖𝑛𝑓𝑝-𝑡</sub>&emsp; 
+<sub>𓂃&emsp;9𝑤1&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓</sub>&emsp; 
+<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛</sub></p>
+    </td>
+  </tr>
+</table>
 
 
 ‎<div align="center">
-‎꒰𐔌 𝒾𝓃𝒻ℴ ♡⸝⸝
+‎꒰𐔌 𝒾𝓃𝒻ℴ ♡⸝⸝ &emsp;  <img width="60" height="16" alt="gvgz58" src="https://github.com/user-attachments/assets/e93f17c1-62c4-44d5-ad54-96e471e5bf1e" />
 
   <div align="center">
 <details>
-<summary><b><img width="60" height="16" alt="gvgz58" src="https://github.com/user-attachments/assets/e93f17c1-62c4-44d5-ad54-96e471e5bf1e" /></b></summary>
+<summary><b> ( ˶°ㅁ°) !!</b></summary>
   <br>
 
 **𝙳𝙽𝙲**\
@@ -57,7 +59,7 @@
 </details>‎  
 
 
-── .✦ [【prns.cc】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【strawpg】](https://yourauraee.straw.page) 
+   ᨳଓ [【prns.cc】](https://pronouns.cc/@aurae)  &emsp; ៸៸៸  [【strawpg】](https://yourauraee.straw.page) 
 
  [【新book】](https://gate2caelum.atabook.org/)&emsp; ៸៸៸  [【·‌·♡ mail 】](https://rentry.co/cordamea) 
 <a href="https://postimg.cc/yW5sPn7J">
