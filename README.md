@@ -1,13 +1,15 @@
 <div align="center"> <sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑``&emsp;``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
-
+<picture><img width="500" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
+</picture>
+<picture><img width="530" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
+  
 &emsp;
 
 <table>
   <tr>
     <td>
-<picture><img width="500" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
+<picture><img width="500" alt="8c4d9a65-8df9-41a3-b26b-623eef8dca16_removalai_preview" src="https://github.com/user-attachments/assets/00357b0e-06c0-43e6-84a9-d71b5c164360" />
 </picture>
-<picture><img width="600" height="38" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
     </td>
     <td>
 <p>
@@ -19,9 +21,8 @@
     </td>
   </tr>
 </table>
-
-
-‎<div align="center">
+<picture><img width="800" alt="color-changed-image (1)" src="https://github.com/user-attachments/assets/dbb8009c-4ef3-4198-9cb9-81330bf5a4a8" /></picture>
+<div align="center">
 ‎꒰𐔌 𝒾𝓃𝒻ℴ ♡⸝⸝ &emsp;  <img width="60" height="16" alt="gvgz58" src="https://github.com/user-attachments/assets/e93f17c1-62c4-44d5-ad54-96e471e5bf1e" />
 
   <div align="center">
