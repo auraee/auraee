@@ -17,7 +17,7 @@
 <sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠 &emsp; &emsp;&emsp;  𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>&emsp; 
 <sub>&emsp;&emsp;04.10&emsp;&emsp;&emsp;&emsp; 𝑖𝑛𝑓𝑝-𝑡</sub>&emsp; 
 <sub>𓂃&emsp;9𝑤1&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓</sub>&emsp; 
-<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛</sub></p>
+<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛&emsp;&emsp; 5𝑡ℎ-𝑡𝑒𝑒𝑛</sub></p>
     </td>
   </tr>
 </table>
