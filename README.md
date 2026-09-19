@@ -1,4 +1,5 @@
 <div align="center"> <sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑``&emsp;``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
+  
 <picture><img width="500" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
 </picture>
 <picture><img width="530" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
