@@ -1,3 +1,5 @@
+<picture><img width="800" alt="color-changed-image (1)" src="https://github.com/user-attachments/assets/dbb8009c-4ef3-4198-9cb9-81330bf5a4a8" /></picture>
+<div align="center">
 <div align="center"> <sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑``&emsp;``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
   
 <picture><img width="500" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
