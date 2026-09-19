@@ -14,10 +14,11 @@
     <td>
 <p>
 <sub>𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠</sub>&emsp;     
-<sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠 &emsp; &emsp;&emsp;  𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>&emsp; 
+<sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠 &emsp; <picture><img width="40" alt="04e2d0a4-8a09-47ad-bb3f-46ec794542f3_removalai_preview" src="https://github.com/user-attachments/assets/438a8a70-b50f-43c9-8a25-6b342dfc1dea" />  𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>&emsp; 
 <sub>&emsp;&emsp;04.10&emsp;&emsp;&emsp;&emsp; 𝑖𝑛𝑓𝑝-𝑡</sub>&emsp; 
 <sub>𓂃&emsp;9𝑤1&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓</sub>&emsp; 
-<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛&emsp;&emsp; 5𝑡ℎ-𝑡𝑒𝑒𝑛</sub></p>
+<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛&emsp;<picture><img width="40" alt="487b4392-caa1-4d82-85a1-0fd738fb4044_removalai_preview" src="https://github.com/user-attachments/assets/22a3e111-69b2-4782-bb64-a84aa1a20df5" /></picture>
+&emsp; 5𝑡ℎ-𝑡𝑒𝑒𝑛</sub></p>
     </td>
   </tr>
 </table>
