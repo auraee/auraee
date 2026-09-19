@@ -70,7 +70,7 @@
 
 </div>
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𐂯ᩙ᩠&color=2596be)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𐂯ᩙ᩠&color=e1c8d2)
 
 
 
