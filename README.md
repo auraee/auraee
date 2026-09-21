@@ -25,7 +25,7 @@
     </td>
   </tr>
 </table>
-<picture><img width="800" alt="color-changed-image (1)" src="https://github.com/user-attachments/assets/dbb8009c-4ef3-4198-9cb9-81330bf5a4a8" /></picture>
+<picture><img width="900" alt="color-changed-image (1)" src="https://github.com/user-attachments/assets/dbb8009c-4ef3-4198-9cb9-81330bf5a4a8" /></picture>
 <div align="center">
 ‎꒰𐔌 𝒾𝓃𝒻ℴ ♡⸝⸝ &emsp;  <img width="60" height="16" alt="gvgz58" src="https://github.com/user-attachments/assets/e93f17c1-62c4-44d5-ad54-96e471e5bf1e" />
 
