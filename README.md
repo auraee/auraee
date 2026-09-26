@@ -11,7 +11,8 @@
 <table>
   <tr>
     <td>
-<picture><img width="500" alt="8c4d9a65-8df9-41a3-b26b-623eef8dca16_removalai_preview" src="https://github.com/user-attachments/assets/00357b0e-06c0-43e6-84a9-d71b5c164360" />
+<picture><img width="600" alt="1000074244" src="https://github.com/user-attachments/assets/9b56c290-b1a5-4a75-ae97-63447e344b3f" />
+
 </picture>
     </td>
     <td>
