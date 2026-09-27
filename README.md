@@ -1,7 +1,8 @@
-<div align="center"><picture><img width="900" alt="1000074265" src="https://github.com/user-attachments/assets/89759113-9b5d-4c9c-ad71-6c55478c2539" <picture/> </div>
+<div align="center"><picture><img width="900" alt="1000074265" src="https://github.com/user-attachments/assets/89759113-9b5d-4c9c-ad71-6c55478c2539" <picture/> 
 
 &emsp;
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Smooch+Sans&weight=500&size=19&letterSpacing=4&duration=3000&pause=600&color=87789F&background=FCDDFF00&center=true&vCenter=true&multiline=true&width=385&height=60&lines=%22You're+out+of+touch%22%EF%B8%8F%EF%B8%8F%EF%B8%8F%F3%A0%80%A0%E2%A0%80+%E2%A0%80+%EF%B9%92+%E2%A0%80+%E2%A0%80%22I'm+out+of+time%22)](https://git.io/typing-svg)</div>
 <div align="center"><table>
   <tr>
     <td>
@@ -34,21 +35,18 @@
 </td>
 <td>
 <p> 
-<picture><img width="120" alt="1000074266" src="https://github.com/user-attachments/assets/fc50d7ad-4199-4c30-9263-33654aeff138" />
+<picture><img width="122" alt="69966ed0-1560-45da-8b74-e82e7f300f0f_removalai_preview" src="https://github.com/user-attachments/assets/37e8474b-4a89-4af0-ab08-3e41f314d001" />
 
     
 </td>
 </tr>
 </table>
   
-
-  <div align="center"> <sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑``&emsp;``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
-
   &emsp;
-<picture><img width="350" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
+<picture><img width="450" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
 </picture>
 
-<picture><img width="350" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
+<picture><img width="450" alt="color-changed-image (2)" src="https://github.com/user-attachments/assets/24a55e77-f770-4164-8c98-47b763b91d65" /> </picture>
   
 ‎꒰𐔌 𝒾𝓃𝒻ℴ ♡⸝⸝ &emsp;  <img width="60" height="16" alt="gvgz58" src="https://github.com/user-attachments/assets/e93f17c1-62c4-44d5-ad54-96e471e5bf1e" />
 
@@ -97,7 +95,7 @@
 
 </div>
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&label=𐂯ᩙ᩠&color=e1c8d2)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?]&labelColor=dbd3d9&label=𝚌𝚑𝚊𝚗𝚌𝚎𝚜&color=bdabc0)
 
 
 
