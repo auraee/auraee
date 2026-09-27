@@ -2,7 +2,7 @@
 
 &emsp;
 
-<table>
+<div align="center"><table>
   <tr>
     <td>
 <picture><img width="190" alt="1000074263" src="https://github.com/user-attachments/assets/3769fcae-fae1-497c-ac65-c3211750da70" /></picture>
@@ -22,7 +22,7 @@
 
 &emsp;
 
-<div align="left"><table>
+<div align="center"><table>
   <tr>
     <td>
 9𝑤1 <img width="25" alt="04e2d0a4-8a09-47ad-bb3f-46ec794542f3_removalai_preview" src="https://github.com/user-attachments/assets/98e9a3d9-b095-43ac-8bdc-acec120534c3" />
@@ -36,7 +36,7 @@
 </td>
 <td>
 <p> 
-<picture><img width="200" alt="1000074266" src="https://github.com/user-attachments/assets/fc50d7ad-4199-4c30-9263-33654aeff138" />
+<picture><img width="120" alt="1000074266" src="https://github.com/user-attachments/assets/fc50d7ad-4199-4c30-9263-33654aeff138" />
 
     
 </td>
