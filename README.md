@@ -19,6 +19,26 @@
 </td>
 </tr>
 </table>
+
+&emsp;
+
+<div align="left"><table>
+  <tr>
+    <td>
+<picture><img width="190" alt="1000074263" src="https://github.com/user-attachments/assets/3769fcae-fae1-497c-ac65-c3211750da70" /></picture>
+
+</picture>
+    </td>
+    <td>
+<p> 
+ℛ𝑖𝑛𝑛𝑖𝑒 &emsp; <sub>౨ৎ</sub>
+<div align="center"><picture><img width="23" alt="ceb86f8a-5231-4808-957a-8b7bd6562c82_removalai_preview" src="https://github.com/user-attachments/assets/d7b2e4de-a377-4617-a1e6-b07a4aa962ce" /> 𝒜𝑢𝑟𝑎𝑒
+  
+ᴰᴺᴵ ` -12 & 18+
+    
+</td>
+</tr>
+</table>
   
 
   <div align="center"> <sub>``𝚈𝚘𝚞'𝚛𝚎 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚘𝚞𝚌𝚑``&emsp;``𝙸'𝚖 𝚘𝚞𝚝 𝚘𝚏 𝚝𝚒𝚖𝚎``</sub>
