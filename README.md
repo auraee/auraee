@@ -20,8 +20,6 @@
 </tr>
 </table>
 
-&emsp;
-
 <div align="center"><table>
   <tr>
     <td>
