@@ -25,16 +25,19 @@
 <div align="left"><table>
   <tr>
     <td>
-<picture><img width="100" alt="1000074257" src="https://github.com/user-attachments/assets/fe20f3fa-7d12-4192-9a37-e1c0206b7f49" />
+9𝑤1 &emsp;<img width="25" alt="04e2d0a4-8a09-47ad-bb3f-46ec794542f3_removalai_preview" src="https://github.com/user-attachments/assets/98e9a3d9-b095-43ac-8bdc-acec120534c3" />
+ 5𝑡ℎ-𝑡𝑒𝑒𝑛
 
-</picture>
-    </td>
-    <td>
+<img width="30" alt="487b4392-caa1-4d82-85a1-0fd738fb4044_removalai_preview" src="https://github.com/user-attachments/assets/5540c453-33e2-4515-be6f-b1f3666ccc74" /> 𝑖𝑛𝑓𝑝-𝑡&emsp; 𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙
+
+&emsp;𝑡𝑎𝑘𝑒𝑛&emsp; 𝑖𝑙𝑚𝑏𝑓 <img width="29" alt="948f75b4-d711-4628-9f9c-6ae46fa65215_removalai_preview" src="https://github.com/user-attachments/assets/eec9a9be-377a-472d-8f19-261ac996bfc9" />
+
+
+</td>
+<td>
 <p> 
-ℛ𝑖𝑛𝑛𝑖𝑒 &emsp; <sub>౨ৎ</sub>
-<div align="center"><picture><img width="23" alt="ceb86f8a-5231-4808-957a-8b7bd6562c82_removalai_preview" src="https://github.com/user-attachments/assets/d7b2e4de-a377-4617-a1e6-b07a4aa962ce" /> 𝒜𝑢𝑟𝑎𝑒
-  
-ᴰᴺᴵ ` -12 & 18+
+<picture><img width="190" alt="1000074257" src="https://github.com/user-attachments/assets/fe20f3fa-7d12-4192-9a37-e1c0206b7f49" />
+
     
 </td>
 </tr>
