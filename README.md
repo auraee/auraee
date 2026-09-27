@@ -12,7 +12,7 @@
     <td>
 <p> 
 ℛ𝑖𝑛𝑛𝑖𝑒 &emsp; <sub>౨ৎ</sub>
-<div align="center"><picture><img width="27" alt="ceb86f8a-5231-4808-957a-8b7bd6562c82_removalai_preview" src="https://github.com/user-attachments/assets/d7b2e4de-a377-4617-a1e6-b07a4aa962ce" /> 𝒜𝑢𝑟𝑎𝑒
+<div align="center"><picture><img width="23" alt="ceb86f8a-5231-4808-957a-8b7bd6562c82_removalai_preview" src="https://github.com/user-attachments/assets/d7b2e4de-a377-4617-a1e6-b07a4aa962ce" /> 𝒜𝑢𝑟𝑎𝑒
   
 ᴰᴺᴵ ` -12 & 18+
     
