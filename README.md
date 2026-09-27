@@ -25,7 +25,7 @@
 <div align="left"><table>
   <tr>
     <td>
-<picture><img width="190" alt="1000074263" src="https://github.com/user-attachments/assets/3769fcae-fae1-497c-ac65-c3211750da70" /></picture>
+<picture><img width="100" alt="1000074257" src="https://github.com/user-attachments/assets/fe20f3fa-7d12-4192-9a37-e1c0206b7f49" />
 
 </picture>
     </td>
