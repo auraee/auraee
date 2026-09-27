@@ -1,5 +1,4 @@
-<div align="center">
-<picture><img width="900" alt="color-changed-image (1)" src="https://github.com/user-attachments/assets/dbb8009c-4ef3-4198-9cb9-81330bf5a4a8" /></picture>
+<div align="center"><picture><img width="900" alt="1000074265" src="https://github.com/user-attachments/assets/89759113-9b5d-4c9c-ad71-6c55478c2539" <picture/>
   
 <picture><img width="900" alt="Untitled82-20260830132635" src="https://github.com/user-attachments/assets/56df5112-4370-437e-8146-536e3f4e6796" />
 </picture>
@@ -10,26 +9,23 @@
 <table>
   <tr>
     <td>
-<picture><img width="600" alt="1000074244" src="https://github.com/user-attachments/assets/9b56c290-b1a5-4a75-ae97-63447e344b3f" />
+<picture><img width="700" alt="1000074263" src="https://github.com/user-attachments/assets/3769fcae-fae1-497c-ac65-c3211750da70" /></picture>
 
 </picture>
     </td>
     <td>
 <p> 
-<picture><img width="38" alt="ceb86f8a-5231-4808-957a-8b7bd6562c82_removalai_preview" src="https://github.com/user-attachments/assets/d7b2e4de-a377-4617-a1e6-b07a4aa962ce" /></picture>
-&emsp;𝚁𝚒𝚗𝚗𝚒𝚎 ノ  𝙰𝚞𝚛𝚊𝚎
+𝚁𝚒𝚗𝚗𝚒𝚎 ノ  𝙰𝚞𝚛𝚊𝚎
   
-<sub>𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑝𝑒𝑡 𝑛𝑎𝑚𝑒𝑠</sub>&emsp;     <sub>𝑎𝑛𝑦 𔓕 𝑎𝑙𝑙 𝑝𝑟𝑛𝑠 &emsp; <picture><img width="40" alt="04e2d0a4-8a09-47ad-bb3f-46ec794542f3_removalai_preview" src="https://github.com/user-attachments/assets/438a8a70-b50f-43c9-8a25-6b342dfc1dea" />   𝑎𝑙𝑤𝑎𝑦𝑠 𝑖𝑤𝑐</sub>&emsp; 
-<sub>&emsp;&emsp;04.10&emsp;&emsp;&emsp;
-&emsp; 𝑖𝑛𝑓𝑝-𝑡</sub>&emsp; 
-<sub>𓂃&emsp;9𝑤1&emsp;𝑐 + ℎ 𝑓𝑟𝑒𝑒𝑙𝑦&emsp; 𝑖𝑙𝑚𝑏𝑓</sub>&emsp; 
-<sub>𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙 &emsp;ꪆ 𝑡𝑎𝑘𝑒𝑛&emsp;<picture><img width="40" alt="487b4392-caa1-4d82-85a1-0fd738fb4044_removalai_preview" src="https://github.com/user-attachments/assets/22a3e111-69b2-4782-bb64-a84aa1a20df5" /></picture>
-&emsp; 5𝑡ℎ-𝑡𝑒𝑒𝑛</sub></p>
-    </td>
-  </tr>
+<div align="center"><picture><img width="60" alt="ceb86f8a-5231-4808-957a-8b7bd6562c82_removalai_preview" src="https://github.com/user-attachments/assets/d7b2e4de-a377-4617-a1e6-b07a4aa962ce" /> 
+
+    
+</td>
+</tr>
 </table>
-<picture><img width="900" alt="color-changed-image (1)" src="https://github.com/user-attachments/assets/dbb8009c-4ef3-4198-9cb9-81330bf5a4a8" /></picture>
-<div align="center">
+<div align="center"><picture><img width="900" alt="1000074265" src="https://github.com/user-attachments/assets/89759113-9b5d-4c9c-ad71-6c55478c2539" <picture/>
+
+  
 ‎꒰𐔌 𝒾𝓃𝒻ℴ ♡⸝⸝ &emsp;  <img width="60" height="16" alt="gvgz58" src="https://github.com/user-attachments/assets/e93f17c1-62c4-44d5-ad54-96e471e5bf1e" />
 
   <div align="center">
