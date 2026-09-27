@@ -25,18 +25,18 @@
 <div align="left"><table>
   <tr>
     <td>
-9𝑤1 &emsp;<img width="25" alt="04e2d0a4-8a09-47ad-bb3f-46ec794542f3_removalai_preview" src="https://github.com/user-attachments/assets/98e9a3d9-b095-43ac-8bdc-acec120534c3" />
+9𝑤1 <img width="25" alt="04e2d0a4-8a09-47ad-bb3f-46ec794542f3_removalai_preview" src="https://github.com/user-attachments/assets/98e9a3d9-b095-43ac-8bdc-acec120534c3" />
  5𝑡ℎ-𝑡𝑒𝑒𝑛
 
-<img width="30" alt="487b4392-caa1-4d82-85a1-0fd738fb4044_removalai_preview" src="https://github.com/user-attachments/assets/5540c453-33e2-4515-be6f-b1f3666ccc74" /> 𝑖𝑛𝑓𝑝-𝑡&emsp; 𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙
+<img width="30" alt="487b4392-caa1-4d82-85a1-0fd738fb4044_removalai_preview" src="https://github.com/user-attachments/assets/5540c453-33e2-4515-be6f-b1f3666ccc74" /> 𝑖𝑛𝑓𝑝-𝑡‎ ‎ ‎ ‎ ✧‎ 𝑏𝑖𝑠𝑒𝑥𝑢𝑎𝑙
 
-&emsp;𝑡𝑎𝑘𝑒𝑛&emsp; 𝑖𝑙𝑚𝑏𝑓 <img width="29" alt="948f75b4-d711-4628-9f9c-6ae46fa65215_removalai_preview" src="https://github.com/user-attachments/assets/eec9a9be-377a-472d-8f19-261ac996bfc9" />
+&emsp;𝑡𝑎𝑘𝑒𝑛 ` 𝑖𝑙𝑚𝑏𝑓 <img width="29" alt="948f75b4-d711-4628-9f9c-6ae46fa65215_removalai_preview" src="https://github.com/user-attachments/assets/eec9a9be-377a-472d-8f19-261ac996bfc9" />
 
 
 </td>
 <td>
 <p> 
-<picture><img width="190" alt="1000074257" src="https://github.com/user-attachments/assets/fe20f3fa-7d12-4192-9a37-e1c0206b7f49" />
+<picture><img width="200" alt="1000074266" src="https://github.com/user-attachments/assets/fc50d7ad-4199-4c30-9263-33654aeff138" />
 
     
 </td>
